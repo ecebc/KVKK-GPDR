@@ -1,3 +1,5 @@
 # KVKK-GPDR
 7-zip
+
+
 YppHSL,T4YgXX?FY!60tp
